@@ -1,1 +1,1 @@
-https://syarifrizik.github.io/coming-soon/
+https://syarifrizik.github.io/Stay-Tuned-Projects.../
